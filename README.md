@@ -1,4 +1,6 @@
-For english please scroll further down.
+For English please scroll further down.
+
+---------------------------------------------------
 
 Hej användare av Bokholken! 
 
@@ -19,7 +21,7 @@ If you have any questions, please feel free to contact me at the same email addr
 Best regards,
 Rebecca
 
------------------------------------------------------
+----------------------------------------------------
 
 
 
